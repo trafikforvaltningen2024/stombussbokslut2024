@@ -1,2 +1,2 @@
 Rapport från Trafikförvaltningen kring Stombussbokslut 2024
-Kontakt: Manue Chala manuel.chala-penagos@sl.se
+Kontakt: Manuel Chala manuel.chala-penagos@sl.se
